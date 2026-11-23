@@ -1,3 +1,4 @@
+![Aipan Solutions Corporate Banner](./AIPAN%20Solutions%20Corporate%20Banner.png)
 # Bharat Bhushan Bungla
 
 ### Founder & Business Development Strategist | AI Trainer | Business & Digital Solutions
