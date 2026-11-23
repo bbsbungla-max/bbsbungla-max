@@ -128,7 +128,7 @@ Independently planned, organised and led an international community gathering in
 
 **Project Metrics:** 900+ participants | 70–75 countries | 857 official registration forms | 12-member emergency team.
 
-**Detailed Case Study:** [International Rainbow Family Gathering – 2018](./projects/international-rainbow-gathering-2018.md)
+[Read Full Case Study](./projects/international-rainbow-gathering-2018.md)
 
 ---
 
